@@ -9,6 +9,6 @@ This is GitHub Page <https://quran.regex.com/> at GitHub <https://github.com/aak
 
 ## W.W.W.
 
-&copy; {{ site.copyright }} --- {{ site.author }} --- Revision: {{ site.version }}.
+&copy; {{ site.copyright }} --- All Rights Reversed --- {{ site.author }} --- Revision: {{ site.version }}.
 
 

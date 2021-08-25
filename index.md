@@ -1,7 +1,7 @@
 ---
 ---
 
-| [Y: Juz 01](https://youtu.be/QDk7_WS1I4w) | [Y: Juz 02](https://youtu.be/_5r4Ape5UlU) | [Y: Juz 03](https://youtu.be/rovSfAGStwQ) |
+| [Y: Juz 01](https://youtu.be/QDk7_WS1I4w) | [Y: Juz 02](https://youtu.be/_5r4Ape5UlU) | [Y: Juz 03](https://youtu.be/rovSfAGStwQ) | [Y: Juz 04](https://youtu.be/__UWBhBDCqw) |
 
 # As.W.W!
   

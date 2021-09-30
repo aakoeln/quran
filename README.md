@@ -1,8 +1,12 @@
+---
+---
+# As.W.W!
 
-# As.w.w!
-  
-  This is <https://quran.regex.com> at <https://github.com/aakoeln/quran>
+This is GitHub Page <https://quran.regex.com/> at GitHub <https://github.com/aakoeln/quran/>.
 
-## W.w.w.
+# Fork() You!
+
+This is a git repo, on GitHub, and nothing but a GitHub Page!
+If you don't like this page, just fork() it!
 
 ### A.A. Al-Kulunia

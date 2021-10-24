@@ -5,7 +5,7 @@
 
 | [Y: Juz 01](https://youtu.be/QDk7_WS1I4w) | [Y: Juz 02](https://youtu.be/_5r4Ape5UlU) | [Y: Juz 03](https://youtu.be/rovSfAGStwQ) | [Y: Juz 04](https://youtu.be/__UWBhBDCqw) | [Y: Juz 05](https://youtu.be/azitOZW2KA0) |
 | [Y: Juz 06](https://youtu.be/eTYhERW2cGw) | [Y: Juz 07](https://youtu.be/EQIxoGdZwB0) | [Y: Juz 08](https://youtu.be/bqfx7VJnHZY) | [Y: Juz 09](https://youtu.be/Fg0VpL2014k) | [Y: Juz 10](https://youtu.be/aSqEXJb4Ti4) |
-| [Y: Juz 11](https://youtu.be/ltlkea-aou8) |
+| [Y: Juz 11](https://youtu.be/ltlkea-aou8) | [Y: Juz 12](https://youtu.be/wWmMWvPPmiA) |
 
 # As.W.W!
   
